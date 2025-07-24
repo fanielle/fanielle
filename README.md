@@ -1,4 +1,4 @@
-## STRAWPAGE/RENTRY STILL IN PROGRESS + remaking github a little!
+## STRAWPAGE/RENTRY STILL IN PROGRESS
 
 ![Uploading image.png…](https://media.discordapp.net/attachments/1367450136774578199/1387256944061976686/73ec053f58b4036722aa9191f26ce4df.png?ex=68819935&is=688047b5&hm=3cb4662ad29e62a1b6588946316b4d5f930a93a335db643ed955a6d361e85006&=&format=webp&quality=lossless)
 
