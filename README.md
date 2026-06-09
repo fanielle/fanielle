@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="200" height="200" src="https://file.garden/aFijNBiQrkOwcUIb/Sticker_vamoopy_Silly_Dutchman.png">
+<img src="https://static.wikitide.net/phightingwiki/6/61/Sticker_vamoopy_Silly_Dutchman.png" width="200" height="200">
 </p>
 　
 <p align="center">
