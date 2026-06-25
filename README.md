@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://file.garden/aFijNBiQrkOwcUIb/Sticker_vamoopy_Vampiric_Laugh.png" width="200" height="200">
+<img src="https://file.garden/aFijNBiQrkOwcUIb/Untitled53_20260625121107.png" width=350">
 </p>
 　
 <p align="center">
