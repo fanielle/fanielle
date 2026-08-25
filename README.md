@@ -8,7 +8,7 @@
 </p>
 　
 <p align="center">
-rentry(remaking)ㅤㅤ　　<a href="https://fanielle.atabook.org/">atabook</a>ㅤㅤ　　<a href="https://phighting.wiki/Scythe">scythe❤️</a>
+inactive for a few days
 </p>
 </body>
 </html>
