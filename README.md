@@ -8,7 +8,7 @@
 </p>
 　
 <p align="center">
-inactive for a few days
+hey guys remaking all my stuff go checj <a href=“https://rentry.co/fanielle”>rentry</a> for more info
 </p>
 </body>
 </html>
